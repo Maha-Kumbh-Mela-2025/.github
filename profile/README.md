@@ -54,4 +54,4 @@ Authorities have implemented extensive sanitation measures, including:
 - Medical facilities equipped to handle emergencies, with special care for women and children.  
 - Efforts to manage waste and promote environmental sustainability.  
 
-For more details, visit the official website: [Maha Kumbh Mela 2025](https://kumbh.gov.in/en/introductio).
+For more details, visit the official website: [Maha Kumbh Mela 2025](https://m.indiamart.com/proddetail/2854144177297.html?utm_source=Gamingwithbrother.ff&utm_medium=affiliate&utm_campaign=0125&utm_content=208)
