@@ -2,6 +2,8 @@
 
 The **Maha Kumbh Mela 2025** is being held in **Prayagraj, Uttar Pradesh, India**, beginning on **January 13, 2025**, and concluding on **February 26, 2025**. This significant spiritual event occurs every 144 years and draws millions of pilgrims seeking spiritual cleansing and blessings.
 
+[Click Here To Claim](https://m.indiamart.com/proddetail/2854144177297.html?utm_source=Gamingwithbrother.ff&utm_medium=affiliate&utm_campaign=0125&utm_content=208)
+
 ## Important Dates for Bathing
 
 - **Paush Purnima (January 13, 2025):** The first holy plunge, marking the start of the celebration.  
